@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/zrqptz.png)
 
-![](https://komarev.com/ghpvc/?username=yratgal&label=　+Trashcans+　&style=plastic&color=ffcd57)  ||  [/TrailHeng](https://rentry.co/TrailHeng) ✦ [新book](https://trailblazer.atabook.org/)
+![](https://komarev.com/ghpvc/?username=yratgal&label=　+Trashcans+　&style=plastic&color=ffcd57)   ||   [/CeritaCinta](https://rentry.co/TrailHeng) ✦ [新book](https://trailblazer.atabook.org/)
 
  ·　·　───　·　───　·　✶　·　───　·　───　·　· 
 
